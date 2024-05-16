@@ -1,4 +1,4 @@
-### Bem vindo ao MELHOR perfil do github 🥇👻
+### Bem vindo ao MELHOR perfil do github 🥇👻🚀
 
 Meu nome é Ryan Alexandre Marin da Silva
 
@@ -10,4 +10,4 @@ Meu nome é Ryan Alexandre Marin da Silva
 
 - marinryan17@gmail.com
 
-![](https://i.pinimg.com/originals/21/2d/01/212d013f86a92588992c6c83a98e1db9.gif)
+![](https://i.imgur.com/Cxr5bgf.gif)
